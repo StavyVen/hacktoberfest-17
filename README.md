@@ -11,7 +11,7 @@
 7. Theodora
 8. Raf!
 9. Christina
-10. Stavroula V
+10. Stavy!
 11. Sotiris
 12. Nikos
 13. Charis 
